@@ -1,0 +1,1 @@
+# -kinci-Dereceden-Denklemin-Kokunu-Bulma
